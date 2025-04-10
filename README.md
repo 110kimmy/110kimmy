@@ -1,5 +1,6 @@
 
-![0d2e32f50a958844ec72fec5225be01a_1](https://github.com/user-attachments/assets/42a389ee-a7f5-4a19-bbcd-4cfc33aba52e)
+![2-D,_19-200](https://github.com/user-attachments/assets/1a125b0d-d747-4011-9b1e-9a23b61cf7b9)
+
 
 <!--
 **deeperdream0/deeperdream0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
