@@ -1,6 +1,5 @@
 ![20250413_133739](https://github.com/user-attachments/assets/0646ef0c-1075-4b9c-a356-bed099f7a414)
-
-
+                         #1 GORILLAZ FAN !! 
 
 
 <!--
