@@ -1,6 +1,4 @@
-![20250413_133739](https://github.com/user-attachments/assets/0646ef0c-1075-4b9c-a356-bed099f7a414)
-                    
-  #1 GORILLAZ FAN !!!!!! 🗣️🗣️🗣️🔥
+![2-D,_19-200](https://github.com/user-attachments/assets/688c8218-6fcb-4e9f-886e-c591eebeb2ef)
 
 
 <!--
