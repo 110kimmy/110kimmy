@@ -1,6 +1,5 @@
 
-![5591bd572e2aecf8261f1e9acf8410e8](https://github.com/user-attachments/assets/2b78ab18-f54c-4932-87f6-700a1facdc19)  
-" home shit home "
+![5591bd572e2aecf8261f1e9acf8410e8](https://github.com/user-attachments/assets/2b78ab18-f54c-4932-87f6-700a1facdc19) 
 
 
 
